@@ -17,3 +17,7 @@ Album 63 is a prophetic, hard-edged worship project using intense rock, metal, a
 6. Cast Down the Altars
 
 7. Unveil the Shadows
+
+### Prayer
+
+Almighty God, we confess that our hearts have often bowed to smaller gods—fame, fear, control, and conspiracy. Break every idol that stands against You. Grant us courage to seek truth with humility, to mourn with those who suffer, and to serve with Your mercy. Let this music call us not to anger or blame but to repentance, reconciliation, and the life of Christ. Amen.
